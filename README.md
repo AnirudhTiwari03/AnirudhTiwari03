@@ -7,7 +7,7 @@
 
 - 🌱 **Software Developer**
 
-- 👨‍💻 All of my projects are available at [https://anuragbadwaheportfolio.vercel.app/](https://anirudhatiwariportfolio.netlify.app/)
+- 👨‍💻 All of my projects are available at [https://anirudhatiwariportfolio.netlify.app/](https://anirudhatiwariportfolio.netlify.app/)
 
 - 📫 How to reach me **anirudhatiwari866@gmail.com**
 
