@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1V1UahcFxF989tPILtQQYXoIxwYU5qE-O/view?usp=sharing](https://drive.google.com/file/d/1V1UahcFxF989tPILtQQYXoIxwYU5qE-O/view?usp=sharing)
 
-- ⚡ Fun fact **I think i am funny😅**
+- ⚡ Fun fact **I'm a curious and enthusiastic individual who loves exploring new challenges and learning continuously.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
